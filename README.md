@@ -1,1 +1,1 @@
-# Hoop-Hop-Showdown-
+# Hoop-Hop-Showdown
